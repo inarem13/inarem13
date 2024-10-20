@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @inarem13
 - 👀 I’m interested in robotics and fandom :D
 - 🌱 I’m currently learning engineering 
-- 📫 How to reach me - inarem_jpg on twt
+- 📫 How to reach me: inarem_jpg on twt
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: im 💅
 
